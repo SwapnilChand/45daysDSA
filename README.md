@@ -11,3 +11,4 @@ Fill in this form if you are planning to start this Challenge : https://forms.gl
 
 Had a break of around a week - resuming in 18 - 05 - 2022
 Nah I'm lazy resuming on 4-6-2022
+Nah I'm lazier still resuming later. Since trying DSA sheets without prep is hard.
